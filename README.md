@@ -7,4 +7,4 @@
 ![](https://komarev.com/ghpvc/?username=pretty-little-things&color=72724E&label=🍃&base=1470)
 
 
-ILL REMAKE THIS SOON I PROMISE [straw](https://tomyheartscontent.straw.page)
+[𝙸](https://tomyheartscontent.straw.page)⠀⠀⠀⠀ ⠀[𝙸𝙸](https://joylylbug.atabook.org/)
