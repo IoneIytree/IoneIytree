@@ -6,5 +6,6 @@
 
 ![](https://komarev.com/ghpvc/?username=pretty-little-things&color=72724E&label=🍃&base=1470)
 
+${\textsf{\color{#72724E}really big fat wip dont kill me please 𝒕𝒉𝒂𝒏𝒌 𝒚𝒐𝒚𝒖} }$
 
 [𝙸](https://tomyheartscontent.straw.page)⠀⠀⠀⠀ ⠀[𝙸𝙸](https://joylylbug.atabook.org/)
