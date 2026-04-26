@@ -4,7 +4,7 @@
 
 <img width="300" height="300" alt="Untitled1219_20260427002817" src="https://github.com/user-attachments/assets/36d8ad37-56fa-418d-aeb0-defbcfd3c2d0" />
 
-${\textsf{\color{#444444}thank u alie for the art... follow her ok...} }$
+${\textsf{\color{#444444}thank u} }$ [alie](https://github.com/PLCSsourvodka) ${\textsf{\color{#444444}for the chungus... follow her ok...} }$
 
 ![](https://komarev.com/ghpvc/?username=pretty-little-things&color=72724E&label=🍃&base=1470)
 
