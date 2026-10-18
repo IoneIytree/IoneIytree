@@ -6,3 +6,6 @@
 
 
 [book](https://joylylbug.atabook.org/) . [strawpage in progress]
+
+<details><summary> 🍀 main interests </summary>ohohoh this isnt finished go away
+</details>
